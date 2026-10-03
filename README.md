@@ -1,0 +1,2 @@
+# premium-ukulele-fret-001-ukulele-fret-wire-setting-ne
+Tired of misplacing fret wire sizes or losing track of your neck inlay designs mid-project? The Ukulele Fret Wire Setting &amp; Neck Inlay Craft Lab is your digital workshop for precision and creativity.  This Notion template eliminates the chaos of scattered notes and spreadsheets by centralizing all your fret wire specifications, neck measurements, a
